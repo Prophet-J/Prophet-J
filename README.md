@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Prophet-J
+- 👀 I’m interested in modding, cheats, and hacking
+- 🌱 I’m currently learning hacking and C# and C++.
+- 💞️ I’m looking to collaborate on mods, cheats, and hacking projects.
+- 📫 How to reach me: DM me on Discord, prophetjofficial.
